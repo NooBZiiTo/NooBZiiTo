@@ -1,3 +1,3 @@
-A mere coder who's wanna learn C++ and HTML, Besides Haxeflixel. Lol.
+A mere coder who wanna learn C++ and HTML, Besides Haxeflixel. Lol.
 
 He/him
